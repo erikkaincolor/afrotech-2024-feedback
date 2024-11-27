@@ -20,7 +20,9 @@ Now that you've read the positives about Afrotech 2024 in my ![Linkedin post](),
 
 - [x] Ensure enough staff are available so employees can take breaks and stay refreshed. Nobody benefits from having just three people working a crowd of 15k job-seekers over 3.5 days with 9-hour shifts.
 
-- [x] A break room for corporate sponsors would be helpful, so attendees don’t interrupt their rest periods.
+- [x] This is from a senior exec: A possible workshop each day on how to dress professionally (if that's your goal), the psychology behind what looks and appearances do in the job hunt and how to put your best foot forward. Yes some tech landscapes have remote-first and a lax office dress code, but that initial impression and what you're wearing counts! This will be helpful for those coming into corporate jobs for the first time, old and young alike.
+
+- [x] A break room for corporate sponsors would be helpful, so attendees don’t interrupt their rest periods. They sometimes look on the job and are often pulled out of a lunch break to assist. 
 
 - [x] The $10-a-slice pizza in the expo hall felt a bit predatory. In contrast, Chick-fil-A did well with their stand, though their pricing likely reflected the convenience.
 
@@ -40,7 +42,7 @@ Now that you've read the positives about Afrotech 2024 in my ![Linkedin post](),
   - The Hyper! beauty items at Figma’s event. Although they didn’t seem to be hiring en masse because they didn’t have a booth, their offsite event was amazing!
   - Costco could have gone further by giving away memberships and having diverse representation.
 
-- [x] Recruiters holding 30-minute conversations with attendees at booths made it challenging for others to engage. I can see limiting individual interactions to a few minutes to keep things moving. I'm concise when I'm well prepared so maybe that's what's needed. A panel on how to network! How to establish a foundation quickly, get to your asks out of the way from those wanting to help resourse-share and moving on. The follow-up on your own time can be more drawn out, but lines were indeed forming.
+- [x] Recruiters holding 30-minute conversations with attendees at booths made it challenging for others to engage. I can see limiting individual interactions to a few minutes to keep things moving. I'm concise when I'm well prepared so maybe that's what's needed. A panel on how to network! How to establish a connection or shared interest quickly, get your specific asks out of the way (from those wanting to help and to resourse-share) and moving on to the next booth. The follow-up on your own time can be more drawn out, but lines were indeed forming.
 
 <img src="america.jpg" alt="Comedian Bernie Mac looking dissapointed" width="400">
 
