@@ -48,7 +48,7 @@ Approaching a booth only to be told by an overworked sponsor that my 'best bet i
   - Walmart with their detangling brush, totes, and nail repair kits
   - The company with Fenty products (yes!)
   - The Hyper! beauty items at Figma’s event. Although they didn’t seem to be hiring en masse because they didn’t have a booth, their offsite event was amazing!
-  - Costco could have gone further by giving away memberships and having diverse representation.
+  - Costco could have gone further by giving away memberships and having diverse representation. (update: The representative was very serious about the brevity of their DEI efforts and their attendance at other minority tech conferences before this one. This recent news is proof: [Costco's Rebuttal Reveals the Mindless Cost of Anti-DEI Efforts](https://www.forbes.com/sites/paologaudiano/2025/01/05/costcos-rebuttal-reveals-the-mindless-cost-of-anti-dei-efforts/))
 
 - [x] Recruiters holding 30-minute conversations with attendees at booths made it challenging for others to engage. I can see limiting individual interactions to a few minutes to keep things moving. I'm concise when I'm well prepared so maybe that's what's needed. A panel on how to network! How to establish a connection or shared interest quickly, get your specific asks out of the way (from those wanting to help and to resourse-share) and moving on to the next booth. The follow-up on your own time can be more drawn out, but lines were indeed forming.
 
